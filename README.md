@@ -1,2 +1,2 @@
 # Ruleta
-Es una ruleta 
+Es una ruleta xddddd
